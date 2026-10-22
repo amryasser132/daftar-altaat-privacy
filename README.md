@@ -1,0 +1,1 @@
+# daftar-altaat-privacy
